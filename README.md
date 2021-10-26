@@ -1,0 +1,1 @@
+# discover_better_camping
